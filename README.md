@@ -4,6 +4,6 @@
   <img src="https://files.catbox.moe/l77rug.png" />
 </p>
 
-• ─────────── • ─────────   [rentry](https://rentry.co/jankakiss) ⊹ [main](https://github.com/jankayaoi) ⊹ [ata](https://janka.atabook.org/) ─────── • ────────────── •
+• ─────────── • ─────────   [rentry](https://rentry.co/-nijiku) ⊹ [main](https://github.com/jankayaoi) ⊹ [ata](https://janka.atabook.org/) ─────── • ────────────── •
 
 
